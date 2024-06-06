@@ -13,5 +13,4 @@ MEU NOME E MARCELO MENDES DE LUCENA
 
 
 
-https://tenor.com/pt-BR/view/kinda-sorta-meh-gif-5428691
-
+![](https://media1.tenor.com/m/bHACi5q5WX0AAAAC/kinda-sorta.gif)
